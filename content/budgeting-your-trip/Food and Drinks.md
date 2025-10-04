@@ -4,4 +4,4 @@ If you're staying at a All Inclusive Hotel, food and drinks may not be a problem
 
 Typically resort food and drinks are fancy looking and may look like the following:
 
-
+![[allinclusiveresortexample.jpg]]
