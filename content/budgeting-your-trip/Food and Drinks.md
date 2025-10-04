@@ -14,3 +14,9 @@ Or you may have an Airbnb. If this is the case, you have a fridge and a stove. Y
 And last but not least if you are staying at a hostel and solo travel, the most cost effective food may be street vendors and or fast food places. 
 
 On average my fiance and I like to find new places to eat, including breakfast. I would avergae about $500.
+
+
+
+
+
+MY RUNNING BALANCE: $1,400

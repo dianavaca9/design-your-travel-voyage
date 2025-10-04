@@ -15,3 +15,7 @@ Before paying for activities and excursions, find a reasonable budget you are wi
 ## **QUICK TIP TO KNOW:**
 
 ==Most of the time, booking activities online and in advance, are cheaper than booking at the activity site the day of. This is the same for booking [[Transportation]]!!==
+
+
+
+MY RUNNING BALANCE: $900

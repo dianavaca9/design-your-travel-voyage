@@ -26,3 +26,8 @@ After going through the steps of budgeting, my [[budgeting-your-trip/Accomadatio
 
 
 
+
+FINAL BALANCE: $3,400
+
+
+

@@ -14,3 +14,7 @@ Emergency money is the #1 thing i prioritize and make sure is fully funded befor
 - [ ] Lets family members and close friends know your destination when leaving for a trip.
 - [ ] Use apps like Life360, or Find My to share locations with family and close friends.
 - [ ] Have your own booklet of essential information pertaining to you and the travelers.
+
+
+
+MY RUNNING BALANCE: $900, NOT INCLUDING THE 25% EMERGENCY FUNDING
