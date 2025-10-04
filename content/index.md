@@ -3,7 +3,7 @@ title: Design Your Travel Voyage
 ---
 This website will help you construct and decide on the perfect destination of your dreams. 
 
-## MAIN CATEGORIES
+## MAIN CATEGORIES:
 - [[blogs-guides-and-tips-101/index|Blogs Guides and Tips 101]]
 - [[budgeting-your-trip/index|Budgeting Your Trip]]
 - [[destinations/index|Destinations]]
