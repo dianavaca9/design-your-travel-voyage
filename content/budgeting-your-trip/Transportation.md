@@ -15,7 +15,7 @@ You may even want to consider a car rental.
 **QUICK TIP TO KNOW**
 ==If you book trips on Wednesday's, they tend to be a little cheaper than other days of the week!==
 
-After going through the steps of budgeting, my [[budgeting-your-trip/Accomadations|starting budget]] was $6k, and my final ultimate budget is $3,400. 
+After going through the steps of budgeting, my [[budgeting-your-trip/Accomadations|starting budget]] was $6k, and my final budget is $3,400. 
 
 
 
