@@ -1,9 +1,7 @@
 ---
-title: Template for Knowledge Base Docs Websites
+title: Design Your Travel Voyage
 ---
-## The index page
-
-This is the index page (`content/index.md`) of your knowledge base docs. It serves as the home page for your website.
+This website will help you construct and decide on the perfect destination of your dreams. 
 
 ## Editing pages
 
