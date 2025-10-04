@@ -13,6 +13,8 @@ New York Cityis known for its "big apple" and a big city with tall building, The
 
 Tokyo is known for its huge lit tall buildings, with future modern structure, "Tokyo drift in real life", (their underground racing), and the vibrant city, filled with the best Japanese food. 
 
+[[Transportation]] here is so easy, as the subways are easily accessible!
+
 ### Wonders of The World
 
 We then have the wonders of the world! Although it is hard to now say how many there is, as some are going away due to weather, tourists etc. and there are the so called "new" wonders that were recently established. Some wonders include:
