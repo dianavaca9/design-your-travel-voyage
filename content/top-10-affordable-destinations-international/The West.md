@@ -1,7 +1,7 @@
 # West of United States, and The West Coast
 
 
-West of the united states, is california, new mexico, Utah, Washington, Vegas, and so much more. Even the west coast is included. 
+- West of the united states, is california, new mexico, Utah, Washington, Vegas, and so much more. Even the west coast is included. 
 
 Some of the affordable and popular destionations include: 
 
